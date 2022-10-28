@@ -2,7 +2,7 @@
 #### SID: 700727681
 #### Email: pxm76810@ucmo.edu
 
-A detail explanation can be find [here (Video)](https://drive.google.com/file/d/19GbGZQ6eaGt6_kQwNGiPYrjtXo0wR4B5/view?usp=sharing)
+A detail explanation can be find [here (Video)](https://drive.google.com/file/d/1GQ-fQs_q_f7dlMDOm69pgT3q1dNfU1Xg/view?usp=sharing)
 
 #### Assignment:
 
